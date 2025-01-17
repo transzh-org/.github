@@ -1,4 +1,4 @@
-![b](https://github.com/user-attachments/assets/73e09a05-95d1-4752-a15a-0e4a005b5386)
+![b](https://github.com/user-attachments/assets/7783daf5-9432-444a-a5d9-ac8ddd5b4b43)
 
 # 欢迎来到 Transzh ！
 
