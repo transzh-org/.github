@@ -1,5 +1,3 @@
-![b](https://github.com/user-attachments/assets/7783daf5-9432-444a-a5d9-ac8ddd5b4b43)
-
 # 欢迎来到中文跨性别维基！
 
 ### 什么是中文跨性别维基？
